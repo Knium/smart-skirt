@@ -6,7 +6,7 @@
 
 ### Demo Movie:
 
-[Here](https://www.youtube.com/watch?v=bgDcw1HMop8&t=47s)
+[Here](https://www.youtube.com/watch?v=bgDcw1HMop8)
 
 ### Exhibited at:
 
